@@ -10,7 +10,7 @@ Diego Hernández Vázquez
 
 dieheva@ciencias.unam.mx
 
-Hanabi Henrández Arce
+Hanabi Hernández Arce
 
 322004416
 
